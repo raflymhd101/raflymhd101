@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**06 September 2026**
+**07 September 2026**
 
-> Never Worry About Numbers. Help One Person At A Time And Always Start With The Person Nearest You.
-> - *Mother Teresa*
+> Become Dust - And They Will Throw Thee In The Air; Become Stone - And They Will Throw Thee On Glass.
+> - *Muhammad Iqbal*
 
 <!--End:quote-->
