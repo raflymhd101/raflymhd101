@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**07 September 2026**
+**08 September 2026**
 
-> Become Dust - And They Will Throw Thee In The Air; Become Stone - And They Will Throw Thee On Glass.
-> - *Muhammad Iqbal*
+> It Is Easier To Stay Out Than Get Out.
+> - *Mark Twain*
 
 <!--End:quote-->
