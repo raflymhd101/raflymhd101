@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**08 September 2026**
+**09 September 2026**
 
-> It Is Easier To Stay Out Than Get Out.
-> - *Mark Twain*
+> He who becomes a Muslim does so in his own interest.
+> - *Abu Bakr (R.A)*
 
 <!--End:quote-->
