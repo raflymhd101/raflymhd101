@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**09 September 2026**
+**10 September 2026**
 
-> He who becomes a Muslim does so in his own interest.
-> - *Abu Bakr (R.A)*
+> Impossible is nothing.
+> - *Muhammad Ali*
 
 <!--End:quote-->
