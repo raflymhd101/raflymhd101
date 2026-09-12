@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**11 September 2026**
+**12 September 2026**
 
-> Wear gratitude like a cloak and it will feed every corner of your life.
-> - *Rumi*
+> The Quality, Not The Longevity, Of One'S Life Is What Is Important.
+> - *Martin Luther King, Jr.*
 
 <!--End:quote-->
