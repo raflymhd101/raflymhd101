@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**13 September 2026**
+**14 September 2026**
 
-> To Improve Is To Change; To Be Perfect Is To Change Often.
+> If You Go On With This Nuclear Arms Race, All You Are Going To Do Is Make The Rubble Bounce.
 > - *Winston Churchill*
 
 <!--End:quote-->
