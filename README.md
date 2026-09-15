@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**14 September 2026**
+**15 September 2026**
 
-> If You Go On With This Nuclear Arms Race, All You Are Going To Do Is Make The Rubble Bounce.
-> - *Winston Churchill*
+> Be good to others, that will protect you against evil.
+> - *Abu Bakr (R.A)*
 
 <!--End:quote-->
