@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**18 September 2026**
+**19 September 2026**
 
-> I Know Of Only One Duty, And That Is To Love.
-> - *Albert Camus*
+> Sir, My Concern Is Not Whether God Is On Our Side; My Greatest Concern Is To Be On God'S Side, For God Is Always Right.
+> - *Abraham Lincoln*
 
 <!--End:quote-->
