@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**21 September 2026**
+**22 September 2026**
 
-> The Quality, Not The Longevity, Of One'S Life Is What Is Important.
-> - *Martin Luther King, Jr.*
+> All God's creatures are His family; and he is the most beloved of God who tries to do most good to God's creatures.
+> - *Abdul Kalam*
 
 <!--End:quote-->
