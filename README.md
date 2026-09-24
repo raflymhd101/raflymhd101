@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**23 September 2026**
+**24 September 2026**
 
-> A Prisoner Of War Is A Man Who Tries To Kill You And Fails, And Then Asks You Not To Kill Him.
-> - *Winston Churchill*
+> Live life as if its rigged in your favor.
+> - *Rumi*
 
 <!--End:quote-->
