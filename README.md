@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**24 September 2026**
+**25 September 2026**
 
-> Live life as if its rigged in your favor.
-> - *Rumi*
+> In Order To Be An Immaculate Member Of A Flock Of Sheep, One Must Above All Be A Sheep Oneself.
+> - *Albert Einstein*
 
 <!--End:quote-->
