@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**26 September 2026**
+**27 September 2026**
 
-> Wars Are Caused By Undefended Wealth.
-> - *Ernest Hemingway*
+> Stop learning. Start knowing.
+> - *Rumi*
 
 <!--End:quote-->
