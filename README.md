@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**27 September 2026**
+**28 September 2026**
 
-> Stop learning. Start knowing.
-> - *Rumi*
+> By Failing To Prepare, You Are Preparing To Fail.
+> - *Benjamin Franklin*
 
 <!--End:quote-->
