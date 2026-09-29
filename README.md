@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**28 September 2026**
+**29 September 2026**
 
-> By Failing To Prepare, You Are Preparing To Fail.
-> - *Benjamin Franklin*
+> Avoid Popularity If You Would Have Peace.
+> - *Abraham Lincoln*
 
 <!--End:quote-->
