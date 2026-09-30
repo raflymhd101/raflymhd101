@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**29 September 2026**
+**30 September 2026**
 
-> Avoid Popularity If You Would Have Peace.
-> - *Abraham Lincoln*
+> Don't read success stories, you will only get a message. Read failure stories, you will get some ideas to get success.
+> - *Abdul Kalam*
 
 <!--End:quote-->
