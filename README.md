@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**30 September 2026**
+**01 October 2026**
 
-> Don't read success stories, you will only get a message. Read failure stories, you will get some ideas to get success.
+> For great men, religion is a way of making friends; small people make religion a fighting tool.
 > - *Abdul Kalam*
 
 <!--End:quote-->
