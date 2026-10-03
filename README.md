@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**02 October 2026**
+**03 October 2026**
 
-> I was not created to be occupied by eating delicious foods like tied up cattle.
-> - *Ali ibn Abi Talib (R.A)*
+> I Guess I Don'T So Much Mind Being Old, As I Mind Being Fat And Old.
+> - *Benjamin Franklin*
 
 <!--End:quote-->
