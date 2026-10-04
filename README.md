@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**03 October 2026**
+**04 October 2026**
 
-> I Guess I Don'T So Much Mind Being Old, As I Mind Being Fat And Old.
-> - *Benjamin Franklin*
+> But Men Are Men; The Best Sometimes Forget.
+> - *William Shakespeare*
 
 <!--End:quote-->
