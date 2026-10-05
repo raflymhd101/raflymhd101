@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**04 October 2026**
+**05 October 2026**
 
-> But Men Are Men; The Best Sometimes Forget.
-> - *William Shakespeare*
+> Be Careless In Your Dress If You Will, But Keep A Tidy Soul.
+> - *Mark Twain*
 
 <!--End:quote-->
