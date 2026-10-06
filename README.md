@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**05 October 2026**
+**06 October 2026**
 
-> Be Careless In Your Dress If You Will, But Keep A Tidy Soul.
-> - *Mark Twain*
+> You Can'T Deny Laughter; When It Comes, It Plops Down In Your Favorite Chair And Stays As Long As It Wants.
+> - *Stephen King*
 
 <!--End:quote-->
