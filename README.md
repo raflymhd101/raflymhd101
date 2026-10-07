@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**06 October 2026**
+**07 October 2026**
 
-> You Can'T Deny Laughter; When It Comes, It Plops Down In Your Favorite Chair And Stays As Long As It Wants.
-> - *Stephen King*
+> My worthiness is all my doubt His Merit- all my fear- Contrasting which my quality Does however appear.
+> - *Abdul Kalam*
 
 <!--End:quote-->
