@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**07 October 2026**
+**08 October 2026**
 
-> My worthiness is all my doubt His Merit- all my fear- Contrasting which my quality Does however appear.
-> - *Abdul Kalam*
+> People Must Learn To Hate And If They Can Learn To Hate, They Can Be Taught To Love.
+> - *Nelson Mandela*
 
 <!--End:quote-->
