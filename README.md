@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**08 October 2026**
+**09 October 2026**
 
-> People Must Learn To Hate And If They Can Learn To Hate, They Can Be Taught To Love.
-> - *Nelson Mandela*
+> Happiness comes towards those which believe in him.
+> - *Ali ibn Abi Talib (R.A)*
 
 <!--End:quote-->
