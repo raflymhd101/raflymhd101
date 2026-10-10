@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**09 October 2026**
+**10 October 2026**
 
-> Happiness comes towards those which believe in him.
-> - *Ali ibn Abi Talib (R.A)*
+> Creativity is the key to success in the future, and primary education is where teachers can bring creativity in children at that level.
+> - *Abdul Kalam*
 
 <!--End:quote-->
