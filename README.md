@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**12 October 2026**
+**13 October 2026**
 
-> I hated every minute of training, but I said, “Don't quit. Suffer now and live the rest of your life as a champion.”
-> - *Muhammad Ali*
+> It Is The Supreme Art Of The Teacher To Awaken Joy In Creative Expression And Knowledge.
+> - *Albert Einstein*
 
 <!--End:quote-->
