@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**16 October 2026**
+**17 October 2026**
 
-> He That Can Have Patience Can Have What He Will.
-> - *Benjamin Franklin*
+> In the matter of justice, all should be equal in your eyes.
+> - *Abu Bakr (R.A)*
 
 <!--End:quote-->
