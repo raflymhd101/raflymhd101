@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**17 October 2026**
+**18 October 2026**
 
-> In the matter of justice, all should be equal in your eyes.
-> - *Abu Bakr (R.A)*
+> It Is Better To Deserve Honors And Not Have Them Than To Have Them And Not Deserve Them.
+> - *Mark Twain*
 
 <!--End:quote-->
