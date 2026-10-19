@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**18 October 2026**
+**19 October 2026**
 
-> It Is Better To Deserve Honors And Not Have Them Than To Have Them And Not Deserve Them.
-> - *Mark Twain*
+> It's the lack of faith that makes people afraid of meeting challenges, and I believe in myself. He who is not courageous enough to take risks will accomplish nothing in life. I figured that if I said it enough, I would convince the world that I really was the greatest.
+> - *Muhammad Ali*
 
 <!--End:quote-->
