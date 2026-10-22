@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**21 October 2026**
+**22 October 2026**
 
-> Strong And Bitter Words Indicate A Weak Cause.
-> - *Victor Hugo*
+> After Climbing A Great Hill, One Only Finds That There Are Many More Hills To Climb.
+> - *Nelson Mandela*
 
 <!--End:quote-->
