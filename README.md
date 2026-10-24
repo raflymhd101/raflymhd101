@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**23 October 2026**
+**24 October 2026**
 
-> There Is No Substitute For Hard Work.
-> - *Thomas A. Edison*
+> Anger Is An Acid That Can Do More Harm To The Vessel In Which It Is Stored Than To Anything On Which It Is Poured.
+> - *Mark Twain*
 
 <!--End:quote-->
