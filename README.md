@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**27 October 2026**
+**28 October 2026**
 
-> Don't count the days, make the days count.
+> Your body is sacred. You're far more precious than diamonds and pearls, and you should be covered too.
 > - *Muhammad Ali*
 
 <!--End:quote-->
