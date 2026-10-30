@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**29 October 2026**
+**30 October 2026**
 
-> The Quality, Not The Longevity, Of One'S Life Is What Is Important.
-> - *Martin Luther King, Jr.*
+> Chains Of Habit Are Too Light To Be Felt Until They Are Too Heavy To Be Broken.
+> - *Warren Buffett*
 
 <!--End:quote-->
