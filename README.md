@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**01 November 2026**
+**02 November 2026**
 
-> Sleeping Is No Mean Art: For Its Sake One Must Stay Awake All Day.
-> - *Friedrich Nietzsche*
+> Don't engage your heart in grief over the past or you wont be ready for what is coming.
+> - *Ali ibn Abi Talib (R.A)*
 
 <!--End:quote-->
