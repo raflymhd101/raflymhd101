@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**05 November 2026**
+**06 November 2026**
 
-> Hating people because of their color is wrong. And it doesn't matter which color does the hating. It's just plain wrong.
-> - *Muhammad Ali*
+> Greed is permanent slavery.
+> - *Ali ibn Abi Talib (R.A)*
 
 <!--End:quote-->
