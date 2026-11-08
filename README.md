@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**07 November 2026**
+**08 November 2026**
 
-> Whoever listens to slander is himself a slanderer.
-> - *Muhammad Ali*
+> One Does Not Leave A Convivial Party Before Closing Time.
+> - *Winston Churchill*
 
 <!--End:quote-->
