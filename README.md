@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**10 November 2026**
+**11 November 2026**
 
-> Thoughts Are The Shadows Of Our Feelings - Always Darker, Emptier And Simpler.
-> - *Friedrich Nietzsche*
+> All My Life Through, The New Sights Of Nature Made Me Rejoice Like A Child.
+> - *Marie Curie*
 
 <!--End:quote-->
