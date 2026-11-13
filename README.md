@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**12 November 2026**
+**13 November 2026**
 
-> In General, Mankind, Since The Improvement Of Cookery, Eats Twice As Much As Nature Requires.
-> - *Benjamin Franklin*
+> This Is The First Convention Of The Space Age - Where A Candidate Can Promise The Moon And Mean It.
+> - *David Brinkley*
 
 <!--End:quote-->
