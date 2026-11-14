@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**13 November 2026**
+**14 November 2026**
 
-> This Is The First Convention Of The Space Age - Where A Candidate Can Promise The Moon And Mean It.
-> - *David Brinkley*
+> After Coming Into Contact With A Religious Man I Always Feel I Must Wash My Hands.
+> - *Friedrich Nietzsche*
 
 <!--End:quote-->
