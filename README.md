@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**19 November 2026**
+**20 November 2026**
 
-> Feet, What Do I Need You For When I Have Wings To Fly?
-> - *Frida Kahlo*
+> Sell your cleverness and buy bewilderment.
+> - *Rumi*
 
 <!--End:quote-->
