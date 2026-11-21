@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**20 November 2026**
+**21 November 2026**
 
-> Sell your cleverness and buy bewilderment.
-> - *Rumi*
+> English is necessary as at present original works of science are in English. I believe that in two decades times original works of science will start coming out in our languages. Then we can move over like the Japanese.
+> - *Abdul Kalam*
 
 <!--End:quote-->
