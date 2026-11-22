@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**21 November 2026**
+**22 November 2026**
 
-> English is necessary as at present original works of science are in English. I believe that in two decades times original works of science will start coming out in our languages. Then we can move over like the Japanese.
-> - *Abdul Kalam*
+> Live amongst people in such a manner that if you die they weep over you and if you are alive they crave for your company.
+> - *Ali ibn Abi Talib (R.A)*
 
 <!--End:quote-->
