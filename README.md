@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**25 November 2026**
+**26 November 2026**
 
-> Your Successes And Happiness Are Forgiven You Only If You Generously Consent To Share Them.
-> - *Albert Camus*
+> But Men Are Men; The Best Sometimes Forget.
+> - *William Shakespeare*
 
 <!--End:quote-->
