@@ -1,8 +1,8 @@
 <!--Start:quote-->
 
-**26 November 2026**
+**27 November 2026**
 
-> But Men Are Men; The Best Sometimes Forget.
-> - *William Shakespeare*
+> The one who has no control over his desires has no control over his mind.
+> - *Ali ibn Abi Talib (R.A)*
 
 <!--End:quote-->
